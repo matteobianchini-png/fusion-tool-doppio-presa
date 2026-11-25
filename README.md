@@ -1,0 +1,1 @@
+# fusion-tool-doppio-presa
